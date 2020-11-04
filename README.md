@@ -1,1 +1,1 @@
-# Throe ithe paper in Dustbin
+# Throw the paper in Dustbin
